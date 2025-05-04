@@ -1,2 +1,0 @@
-# twice
-pagina de twice
